@@ -6,4 +6,3 @@ i like n25. um byf i have a slightly odd and weird personality and im quite inse
 
 i have no dni just dont be problematic , ok ty
 
-<img width="735" height="588" alt="IMG_0159" src="https://github.com/user-attachments/assets/acede9e8-16e2-4208-b1ba-8756f05a7a84" />
